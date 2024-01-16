@@ -1,4 +1,4 @@
-- Hi, I’m @stamphen (or Adam) and I'm currently a BYU student preparing for my mission. 
+- Hi, I’m Adam and I'm currently a BYU student preparing for my mission. 
 - I’m considering majoring in strategic management and minoring in both computer science and mathematics, but I'm not totally sure yet. 
 - I love reading and being outside and would love to meet new people and learn as much as I can!
 
